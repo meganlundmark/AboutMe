@@ -18,21 +18,25 @@ Established problem solving/personable skills, patience, time management, compas
 Referee	2016-2017
 Responsible for monitoring soccer games
 Developed confidence and quick decision making skills in pressure intensive situations
+
 LEADERSHIP
 
 Defensive Player of the Year Varsity Soccer, Downingtown West High School	2017
 Motivated team through example of working hard at practice and in games
 Team Captain Varsity Soccer Team, Downingtown West High School	2017
 Led, encouraged, and supported team members while assisting the coach with team objectives
+
 ACTIVITIES
 
 NCAA Division I Women’s Soccer Team Member, Lehigh University 	2018-Present
 Devote 30 hours weekly to practices and games in season, 20 hours weekly in postseason
+
 Volunteer Experience	2014-2019
+
 Counselor at a Christian Summer camp, childcare responsibilities for 20 hours a week, two weeks every summer
 Adopt-A-Family, raised money to support a family in need during the holiday season
 National Honors Society, Downingtown West High School 	2014-2018
- Organized school events 
+Organized school events 
 Committed efforts to community service events frequently throughout the school year
 Varsity Soccer Team Member, Downingtown West High School	2014-2017
 Devoted 15 hours to weekly practices and games
